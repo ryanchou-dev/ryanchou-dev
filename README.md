@@ -1,4 +1,4 @@
-hii im ryan<br>
+hii im (c)ryan<br>
 → https://ryanchou.dev
 
 ---
